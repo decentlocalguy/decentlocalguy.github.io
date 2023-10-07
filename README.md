@@ -1,1 +1,1 @@
-# randomly-n-decently-made.github.io
+# local's pages of randomly 'n' decently enough made worldbuilding project
